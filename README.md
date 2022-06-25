@@ -1,4 +1,4 @@
-- 👋 Hi, I’m  o  Altamir
+- 👋 Hi, I’m  o  Altamir OLiveira
 - 👀 I’m interested in  tecnologia da informa
 - 🌱 I’m currently learning  
 - 💞️ I’m looking to collaborate on ...
